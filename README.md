@@ -1,2 +1,1 @@
-#First_Mac_App
-Sup guys, 
+Definitley not rickrolling
